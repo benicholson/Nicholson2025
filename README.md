@@ -1,0 +1,1 @@
+Github repository for Should They Stay or Should They Go: The Clash of National and Local Immigration Politics in Chicago, Denver, and New York City (Nicholson 2025). Additional materials available upon request. 
